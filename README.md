@@ -1,0 +1,1 @@
+Lançamentos de dados e a soma de ambos
